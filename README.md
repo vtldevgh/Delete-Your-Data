@@ -5,6 +5,9 @@ Delete your data from Enabelo exams.
 ### vtldev@voicetechlabs.com
 ### sneh@voicetechlabs.com
 
+### info@zapurzaasystems.com
+### sneh@zapurzaasystems.com
+
 ### Mention your email id and tell us that you want to delete your data.
 
-### We will delete your data in 48 hours.
+### We will delete your data in 48 working hours.
